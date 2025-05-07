@@ -6,7 +6,7 @@ No flashy graphics. No competitive rankings. No pressure. Just pure fun and sati
 
 If you’re stuck behind a school or office firewall, don’t worry — the Doodle Baseball Unblocked version is here for you.
 
-Just search for “Doodle Baseball Unblocked”, and you’ll find multiple safe sites that let you:
+**[Click here to play Doodle Baseball Unblocked!](https://1kb.link/m3wje4)**
 - Play directly in your browser  
 - Skip installs and sign-ins  
 - Avoid annoying ads
